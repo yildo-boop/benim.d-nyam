@@ -1,0 +1,2 @@
+# benim.d-nyam
+Herşeyim
